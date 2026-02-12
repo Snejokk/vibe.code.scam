@@ -1,1 +1,1 @@
-Just some staff that i made, when use ai.
+These are just some of my old projects that I’d rather ignore. They’re poor quality and don’t really represent my current profile.
